@@ -9,7 +9,7 @@
 
           My name Boom
           Live in thailand but i hate it :)
-          My Fav game are
+          My Fav game
          1. Killing Floor 2
          2. Path of Exile
          3. Among Us
