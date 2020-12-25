@@ -1,5 +1,5 @@
 # Just For Fun
-![image](https://ih1.redbubble.net/image.1684340548.8521/st,small,845x845-pad,1000x1000,f8f8f8.jpg)
+![image](https://ih1.redbubble.net/image.1684340737.8521/fposter,small,wall_texture,product,750x1000.jpg)
 ### if you need to know more just DM me kay?
          |        |         |
          |        |         |
